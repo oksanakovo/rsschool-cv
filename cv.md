@@ -1,4 +1,4 @@
-![photo](img-1455.png)
+
 # **Oksana Kovalenko**
 ## **Сontacts**
 *Tel:* +375(29)200-07-18,
